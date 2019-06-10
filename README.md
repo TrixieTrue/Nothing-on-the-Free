@@ -1,2 +1,2 @@
 # Nothing-on-the-Free
-Nothing on the free! so wby should I be?
+Nothing on the free! So why should I be?
